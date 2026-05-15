@@ -1,10 +1,19 @@
 ![image alt](https://github.com/CAD-Batch/Linux-All-Command/blob/fb76809d0d97939e5f052aea98cc43f06f9f5f1b/%40devopsshack%20-%20R%E2%A4%93Download%20(5).jpeg)
+
 ![image alt](https://github.com/CAD-Batch/Linux-All-Command/blob/42b24761c7f378bfeca0cd89639a9024972a1857/%40devopsshack%20-%20R%E2%A4%93Download%20(2).jpeg)
-![image alt]([https://github.com/CAD-Batch/Linux-All-Command/blob/c80604fe0569facaba6baaacf1566ca2d69c832f/%40devopsshack%20-%20R%E2%A4%93Download%20(3).jpeg](https://github.com/CAD-Batch/Linux-All-Command/blob/f103aa884905026f9639e8758ffc98110719e8d2/%40devopsshack%20-%20R%E2%A4%93Download%20(4).jpeg))
-![image alt]([https://github.com/CAD-Batch/Linux-All-Command/blob/c80604fe0569facaba6baaacf1566ca2d69c832f/%40devopsshack%20-%20R%E2%A4%93Download.jpeg](https://github.com/CAD-Batch/Linux-All-Command/blob/f103aa884905026f9639e8758ffc98110719e8d2/%40devopsshack%20-%20R%E2%A4%93Download%20(3).jpeg))
+
+![image alt](https://github.com/CAD-Batch/Linux-All-Command/blob/f103aa884905026f9639e8758ffc98110719e8d2/%40devopsshack%20-%20R%E2%A4%93Download%20(4).jpeg)
+
+![image alt](https://github.com/CAD-Batch/Linux-All-Command/blob/1f1d771c5b0245a80272d97474c8fbf65f35a879/%40devopsshack%20-%20R%E2%A4%93Download%20(3).jpeg)
+
 ![image alt](https://github.com/CAD-Batch/Linux-All-Command/blob/c80604fe0569facaba6baaacf1566ca2d69c832f/%40devopsshack%20-%20R%E2%A4%93Download.jpeg)
+
 ![image alt](https://github.com/CAD-Batch/Linux-All-Command/blob/c80604fe0569facaba6baaacf1566ca2d69c832f/%40devopsshack%20-%20R%E2%A4%93Download%20(6).jpeg)
+
 ![image alt](https://github.com/CAD-Batch/Linux-All-Command/blob/c80604fe0569facaba6baaacf1566ca2d69c832f/%40devopsshack%20-%20R%E2%A4%93Download%20(7).jpeg)
+
 ![image alt](https://github.com/CAD-Batch/Linux-All-Command/blob/c80604fe0569facaba6baaacf1566ca2d69c832f/%40devopsshack%20-%20R%E2%A4%93Download%20(9).jpeg)
+
 ![image alt](https://github.com/CAD-Batch/Linux-All-Command/blob/c80604fe0569facaba6baaacf1566ca2d69c832f/%40devopsshack%20-%20R%E2%A4%93Download%20(10).jpeg)
+
 ![image alt](https://github.com/CAD-Batch/Linux-All-Command/blob/c80604fe0569facaba6baaacf1566ca2d69c832f/%40devopsshack%20-%20R%E2%A4%93Download%20(8).jpeg)
